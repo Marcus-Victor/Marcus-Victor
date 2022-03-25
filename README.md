@@ -1,0 +1,2 @@
+- 👋 Olá meu nome é Marcus Victor
+- 👀 estou em busca de oportunidades no mercado de TI
